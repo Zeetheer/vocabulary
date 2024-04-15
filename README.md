@@ -5,3 +5,6 @@
 
 # Update Note
 ### Now you can export words with txt files.
+
+
+https://youtube.com/shorts/57pSMpprXeU?feature=share
